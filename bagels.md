@@ -15,7 +15,7 @@ Use the exact ingredients listed. Do not use bread flour as a replacement for hi
 
 I use a commercial mixer but you can use a home model Kitchen Aid or similar stand mixer. Be careful that you don't overload your mixer if you double or triple the recipe. Bagel dough is tough on mixers and is the reason I have made this recipe small.
 
-If any of the steps are confusing or you don't understand any of the terms, use your favorite Internet search engine to learn more. Do not expect to get these perfect on the first attempt. I have made literally thousands of bagels in my lifetime, both professionally and at home. If you hope to make them look as good as mine on the first attempt, you are fooling yourself. Just like learning any skill, it takes time.
+If any of the steps are confusing or you don't understand any of the terms, use your favorite Internet search engine to learn more. Do not expect to get these perfect on the first attempt. I have made literally thousands of bagels in my lifetime, both professionally and at home. If you expect to make them look as good as mine on the first attempt, you are fooling yourself. Just like learning any skill, it takes time.
 
 ## INSTRUCTIONS
 
