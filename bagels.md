@@ -2,11 +2,13 @@
 
 *Makes 6 large bagels*.  Feel free to portion these smaller if you want smaller bagels.
 
-22 oz high gluten flour
-12.7 oz water
-1 tsp. instant dry yeast
-0.5 oz salt
-0.5 oz diastatic malt powder
+## INGREDIENTS
+
+- 22 oz high gluten flour
+- 12.7 oz water
+- 1 tsp. instant dry yeast
+- 0.5 oz salt
+- 0.5 oz diastatic malt powder
 
 ## NOTES 
 Use the exact ingredients listed. Do not use bread flour as a replacement for high-gluten. Do not use non-diastatic malt powder. You can use active dry yeast as a substitute but you need to dissolve it in a bit of the water before adding it to the rest of the ingredients.
